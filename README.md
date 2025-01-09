@@ -132,7 +132,7 @@ For any questions or suggestions, feel free to contact:
 
 **Dhanashree**  
 [GitHub Profile](https://github.com/dhanashree23112003)  
-Email: [dhanashree23112003@example.com](mailto:dhanashree23112003@example.com)
+Email: [dhanashree23112003@example.com](mailto:dhanashreebansode416@gmail.com)
 
 ---
 
